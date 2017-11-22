@@ -32,4 +32,4 @@ Turning again toward childish treble, pipes
 And whistles in his sound. Last scene of all,  
 That ends this strange eventful history,  
 Is second childishness and mere oblivion;  
-Sans teeth, sans eyes, sans taste, sans everything.   
+AND THERE IS A LIGHT THAT NEVER GOES OUT.   
